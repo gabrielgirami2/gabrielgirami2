@@ -1,5 +1,5 @@
 # 💫 About Me:
-Technology's lover!<br>I am Gabriel<br>I am 19<br>Currently I'm FIAP's student in the first semester of Analysis and Systems Development
+Technology's lover!<br>I am Gabriel<br>I am 20<br>Currently I'm FIAP's student in the last semester of Analysis and Systems Development
 
 
 ## 🌐 Socials:
